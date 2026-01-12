@@ -123,27 +123,30 @@
 
 ### 🔹 1️⃣ Cat–Cow + Spine Warm-Up (4 min)
 
-📌 [https://www.youtube.com/watch?v=kqnua4rHVVA](https://www.youtube.com/watch?v=kqnua4rHVVA)
+[[![Cat–Cow Warm-Up](https://img.youtube.com/vi/kqnua4rHVVA/0.jpg)](https://www.youtube.com/watch?v=kqnua4rHVVA)
+
+ 
+
 *ধীরে করলেই উপকার পাবা*
 
 ### 🔹 2️⃣ Cobra + Lower Back Relief (3 min)
 
-📌 [https://www.youtube.com/watch?v=-H4F5nqgEkE](https://www.youtube.com/watch?v=-H4F5nqgEkE)
+[![Cobra Stretch – Lower Back Relief](https://img.youtube.com/vi/-H4F5nqgEkE/0.jpg)](https://www.youtube.com/watch?v=-H4F5nqgEkE)
 *ডিস্ক প্রেসার কমাতে চমৎকার*
 
 ### 🔹 3️⃣ Child’s Pose Relaxation (2 min)
 
-📌 [https://www.youtube.com/watch?v=FfG9BLKQCjw](https://www.youtube.com/watch?v=FfG9BLKQCjw)
+[![Child’s Pose – Back Relaxation](https://img.youtube.com/vi/FfG9BLKQCjw/0.jpg)](https://www.youtube.com/watch?v=FfG9BLKQCjw)
 *স্ট্রেস + ব্যাক-পেইন ডাবল রিলিফ*
 
 ### 🔹 4️⃣ Hip Flexor Stretch (5 min)
 
-📌 [https://www.youtube.com/watch?v=t4x9Zz80GyM](https://www.youtube.com/watch?v=t4x9Zz80GyM)
+[![Hip Flexor Stretch – Desk Sitters Relief](https://img.youtube.com/vi/t4x9Zz80GyM/0.jpg)](https://www.youtube.com/watch?v=t4x9Zz80GyM)
 *লম্বা সময় বসার ফলে যে টান পড়ে তা খুলে দেয়*
 
 ### 🔹 5️⃣ Hamstring Stretch (5 min)
 
-📌 [https://www.youtube.com/watch?v=IR95Y6xAVu0](https://www.youtube.com/watch?v=IR95Y6xAVu0)
+[![Hamstring Stretch – Lower Back & Leg Relief](https://img.youtube.com/vi/IR95Y6xAVu0/0.jpg)](https://www.youtube.com/watch?v=IR95Y6xAVu0)
 *পিঠ-নিতম্ব-পায়ের চাপ একসাথে কমায়*
 
 ---
