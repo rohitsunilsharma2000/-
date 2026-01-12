@@ -131,22 +131,24 @@
 
 ### 🔹 2️⃣ Cobra + Lower Back Relief (3 min)
 
-[![Cobra Stretch – Lower Back Relief](https://img.youtube.com/vi/-H4F5nqgEkE/0.jpg)](https://www.youtube.com/watch?v=-H4F5nqgEkE)
+[![Cobra + Lower Back Relief (3 min)](https://img.youtube.com/vi/QKFYo8VXYmY/0.jpg)](https://www.youtube.com/shorts/QKFYo8VXYmY)
+
 *ডিস্ক প্রেসার কমাতে চমৎকার*
 
 ### 🔹 3️⃣ Child’s Pose Relaxation (2 min)
 
-[![Child’s Pose – Back Relaxation](https://img.youtube.com/vi/FfG9BLKQCjw/0.jpg)](https://www.youtube.com/watch?v=FfG9BLKQCjw)
+[![Child’s Pose Relaxation (2 min)](https://img.youtube.com/vi/CHk_NNL5cQU/0.jpg)](https://www.youtube.com/shorts/CHk_NNL5cQU)
 *স্ট্রেস + ব্যাক-পেইন ডাবল রিলিফ*
 
 ### 🔹 4️⃣ Hip Flexor Stretch (5 min)
 
-[![Hip Flexor Stretch – Desk Sitters Relief](https://img.youtube.com/vi/t4x9Zz80GyM/0.jpg)](https://www.youtube.com/watch?v=t4x9Zz80GyM)
+[![Hip Flexor Stretch (5 min)](https://img.youtube.com/vi/DXuStgWuJV8/0.jpg)](https://www.youtube.com/watch?v=DXuStgWuJV8)
 *লম্বা সময় বসার ফলে যে টান পড়ে তা খুলে দেয়*
 
 ### 🔹 5️⃣ Hamstring Stretch (5 min)
 
-[![Hamstring Stretch – Lower Back & Leg Relief](https://img.youtube.com/vi/IR95Y6xAVu0/0.jpg)](https://www.youtube.com/watch?v=IR95Y6xAVu0)
+[![Hamstring Stretch (5 min)](https://img.youtube.com/vi/ywgDXzYD6v8/0.jpg)](https://www.youtube.com/shorts/ywgDXzYD6v8)
+
 *পিঠ-নিতম্ব-পায়ের চাপ একসাথে কমায়*
 
 ---
